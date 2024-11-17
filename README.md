@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Abbbieeee
-- 👀 I’m interested in dw, dnb?, and legos! 
+- 👀 I’m interested in dw, dnb?, a legos! and more fandom! 
 - 🌱 I’m currently learning to int more
 - 😄 Pronouns: she/her 
 - ⚡ Fun fact: I'm a listener and can be a yapper sometimes, I'm introvert!
