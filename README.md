@@ -1,4 +1,4 @@
-~`acc for PT!!! 
+~`might redo this  
 ~` Hi, I'm Abbie or Atina lol
 ~` I'm very friendly and caring, and I'm a listener but sometimes a yapper too, I'm also silly sometimes. 
 ~` BYI; PLS int w/ me because I always get bored whenever I'm alone.. so feel free to int! 
